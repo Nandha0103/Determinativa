@@ -1,1 +1,1 @@
-# Determinativa
+# Determinative
